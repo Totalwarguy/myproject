@@ -4,7 +4,7 @@ As Kanye West said:
 > :octopus: We're living the future so
 > the present is our past. :octopus:
 
-#How to cook an Omelet
+How to cook an [Omelet](https://www.youtube.com/watch?v=N2mIbgwfDXk)
 
 
 
